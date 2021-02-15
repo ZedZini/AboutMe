@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @ZedZini
+- 👀 I’m interested in You. *Evil Laugh*
+- 🌱 I’m currently learning nothing. CAUSE I KNOW EVERYTHING!!!
